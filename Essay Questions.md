@@ -13,7 +13,7 @@ Growing up my mother always told my sisters and I that the jobs we would have as
 -	Building a professional network within the coding community
 -	Establishing my personal brand and professional online presence with a new blog and website
 
-As for the next five years, I’m closely watching advancements in the VR field and would like to potentially pursue a career in WebVR development.  I also know I want to work to make STEM field careers more accessible for other women.  The Bloomberg Businessweek article I mentioned above was so important to me because it made the world of coding feel truly *accessible* for the first time.  Through public speaking engagements and working with programs like ADA I see myself sharing this feeling of accessibility in the next five years.
+As for the next five years, I’m closely watching advancements in the VR field and would like to potentially pursue a career in WebVR development.  I also know I want to work to make STEM field careers more accessible for other women.  The [Bloomberg Businessweek article](http://www.bloomberg.com/graphics/2015-paul-ford-what-is-code/) I mentioned above was so important to me because it made the world of coding feel truly *accessible* for the first time.  Through public speaking engagements and working with programs like ADA I hope to share this feeling of accessibility over the next five years.
 
 ####3. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently?
 
