@@ -5,7 +5,7 @@ Address | Email | Phone
 ------------ | ------------- | -------------
 32 Middagh Street Apt 3 // Brooklyn, NY 11201 | cfhearne@gmail.com | 203 561 7870
  
-##Skills
+##Profile
 Self-motivated revenue management consultant with advanced analytical skills and over five years' hospitality industry experience in top US Travel Destinations. ***Areas of strength include***:
 
 + Comprehensive	knowledge	of	e-commerce	challenges	and	account	management	best	practices	
