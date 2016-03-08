@@ -5,23 +5,31 @@ Address | Email | Phone
 ------------ | ------------- | -------------
 32 Middagh Street Apt 3 // Brooklyn, NY 11201 | cfhearne@gmail.com | 203 561 7870
  
-
-> **KEY	ACCOUNT	MANAGER WITH	OVER	FIVE	YEARS’ REVENUE	MANAGEMENT	CONSULTING EXPERIENCE IN	THE	HOSPITALITY	INDUSTRY	ACROSS	TOP	US	TRAVEL	DESTINATIONS**
-
+##Skills
+**KEY	ACCOUNT	MANAGER WITH	OVER	FIVE	YEARS’ REVENUE	MANAGEMENT	CONSULTING EXPERIENCE IN	THE	HOSPITALITY	INDUSTRY	ACROSS	TOP	US	TRAVEL	DESTINATIONS**
++ Comprehensive	knowledge	of	e-commerce	challenges	and	account	management	best	practices	
++ Background working	with international	teams in	roles requiring	frequent	domestic	and	European	travel in	conjunction	with cross-department	collaborations
++ Strong	individual	contributor	with	management	experience	leading	and	training	teams
++ Reputation	for	thinking	outside	the	box,	especially	in	analyzing	and	optimizing	standard	operating procedures
++ Recognized confident	and	dynamic	public	speaker
 
 ##Education
 
-####Cornell	University,	School	of	Hotel	Administration
-Bachelor	of	Science	in	Hotel	Administration -  May	2010
+####Cornell	University,	School	of	Hotel	Administration (SHA) 
+Bachelor	of	Science	in	Hotel	Administration -  May	2010  
+  **Awards:** *HVS Models of Excellence Finalist (public speaking competition), Dean's List*
+
+####General Assembly
+User Experience 12-week Immersive Certificate Program	- Spring 2013
 
 ##Experience
 
 ####**Booking.com	(USA) Hotel	Team**
 
-   **Key	Account	Manager,	Global	Accounts** – AMERICAS	(IHG,	Best	Western	and	Starwood	accounts)  
-   **Senior	Account	Manager**	– Washington,	Wyoming	and	Montana	(1,436 accounts)  
-   **Account	Manager**	– San	Francisco Metro (96	accounts)  
-   **Account	Manager**	– Wyoming,	Montana,	Idaho (534	accounts) 
+   **Key	Account	Manager,	Global	Accounts** – AMERICAS	(IHG,	Best	Western	and	Starwood), *Jan 2015 - Feb 2016*  
+   **Senior	Account	Manager**	– Washington,	Wyoming	and	Montana	(1,436 accounts), *Oct 2013 - Jan 2015*  
+   **Account	Manager**	– San	Francisco Metro (96	accounts), *June 2012 - Oct 2013*    
+   **Account	Manager**	– Wyoming,	Montana,	Idaho (534	accounts),*Dec 2011 - June 2012*   
 
 + Served	as	global	lead	for	Starwood	account,	working	closely	with	both	internal	APAC	and	EMEA	regional account	managers	as	well	as	Starwood	stakeholders	to	grow	total	booked	revenue	50.2%	YoY
 + Consistently	overachieved	quarterly	KPI	of	booked	room	night	(share)	YoY	growth	for	top	25 underperforming	North	America	loss	leaders	across	IHG,	Best	Western	and	Starwood	accounts
@@ -37,7 +45,7 @@ Bachelor	of	Science	in	Hotel	Administration -  May	2010
  
 ####**Expedia,	Inc Partner	Services	Group	(PSG)**
 
-   **Market Manager** – Los Angeles Metro (416 accounts)
+   **Market Manager** – Los Angeles Metro (416 accounts), *June 2010 - Oct 2011*  
 
 + Managed partner	relationships,	negotiated long-term	contracts,	developed internal	new	hires,	and prepared forecasting	reports	for	Director-level	management in	a	top	5	destination	market
 + Educated	partners	on	topics	ranging	from	use	of	Expedia’s	tools	and	systems	to	future	market	trends through	both	remote	webinar	presentations	and	over	300	face	to	face	meetings
