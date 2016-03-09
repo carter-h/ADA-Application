@@ -17,7 +17,11 @@ As for the next five years, I’m closely watching advancements in the VR field 
 
 ####3. Tell us about a time you made a mistake that you learned a lot from. If you encountered the situation again, what would you do differently?
 
-(ANSWER PLACEHOLDER)
+One of the biggest lessons I have learned in my career is to not shy away from asking for what you want in your professional life when it comes to responsibilities, future growth opportunities and compensation.  People are not mind readers – they won’t know what you want unless you ask for it.
+
+Specifically regarding compensation, when I applied for my first promotion I made the mistake of not being clear with myself regarding my salary expectations.  When my negotiations began the first salary offer was below my current base as I would be relocating to a new, “cheaper” city with different salary caps.  Ultimately I negotiated a higher base however I did not strongly push to have my tenure and experience accounted for.  I told myself that I was gaining management experience and was ok compromising.  
+
+I accepted the promotion and later learned team members I managed had salaries higher than what the company first offered me as a manager. I regretted not advocating for myself more.  Following the above experience I have had two raise negotiations and always prepare a personal high/medium/low proposal backed by my performance data.  I have become comfortable talking about the worth of my work.
 
 ####4. Have you taught yourself anything before? Describe what you learned and how you approached it.
 
