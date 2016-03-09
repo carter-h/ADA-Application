@@ -21,4 +21,10 @@ As for the next five years, I’m closely watching advancements in the VR field 
 
 ####4. Have you taught yourself anything before? Describe what you learned and how you approached it.
 
-(ANSWER PLACEHOLDER)
+As someone who is naturally curious and who recognizes read/write as their preferred LARK learning style, I am constantly googling questions and acquiring information.  Having said that, learning to knit hats while a camp counselor is a time where I had the specific intention to teach myself a new skill. 
+
+I had zero previous knitting experience. For the first week I practiced casting-on the first row of stitches repeatedly – taking my work off the needle and restarting when I was done.  When I began to knit after learning the “around the needle, through the loop and back over the needle” process I was so excited about finishing my first project that I cast off too soon. The final product looked like a red knit Yarmulke due to the stitches being too tight (and too few).  
+
+My next project was a hat using 10 different colored yarns and a pattern based on something I had seen at the Gap.  It took me the whole Summer to complete but I was up for the challenge.  My philosophy when learning something comes down to the following quote: 
+
+> “*Whether you think you can, or you think you can't - you're right.*” – Henry Ford
