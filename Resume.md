@@ -1,5 +1,5 @@
 #Carter Fairbanks Hearne
- 
+![Profile Picture](ADA-Application/ProfilePicture.jpg "Carter Profile")
 
 Address | Email | Phone
 ------------ | ------------- | -------------
